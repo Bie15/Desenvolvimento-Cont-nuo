@@ -1,1 +1,1 @@
-# Desenvolvimento-Cont-nuo
+# Desenvolvimento-Contínuo
